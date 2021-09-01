@@ -1,4 +1,4 @@
-- Follow me http://instagram.com/dpr4mz
+- Follow me instagram.com/dpr4mz
 - My Channel http://bit.ly/youtube-dhimaz
 - My Team Work http://bit.ly/itlppmribdg
 - Video Tutorial Basic Web http://bit.ly/dpr4mz-tutor
